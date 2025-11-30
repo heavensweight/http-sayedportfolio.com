@@ -1,1 +1,0 @@
-# http-sayedportfolio.com
